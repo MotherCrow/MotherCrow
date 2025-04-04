@@ -1,9 +1,10 @@
-- 👋 Hi, I’m @MotherCrow, a creative writer, artist, and teacher. 
-- 🌻 My special interests are poetry, performance art, hot yoga, child development/mental health, personality patterns, neurodivergence, education and curricula, community health and wellness, and sustainability practices.  
-- ☀️ I am currently learning Adobe Creative Suite, Bird of Paradise, and how to start a business.  
-- ✍️ I am looking to collaborate on projects in need of a creative consultant, line editor, or developmental editor.
-- 🌟 I am highly detail-oriented and uniquely capable of understanding another person's vision. 
-- 🤝 To Grow with Mother Crow, visit wwww.mothercrowpoetry.com
+- 👋 Hello, I’m @MotherCrow
+- 🌻 My special interests are poetry, performance art, hot yoga, child development, mental health, personality disorders, neurodivergence, education & curriculum development, community health & wellness, and sustainability practices.  
+- ☀️ I am currently learning Adobe Creative Suite, Bird of Paradise, and how to start a non-profit organization.  
+- ✍️ I am looking to collaborate on projects in need of creative input, a line editor, or a developmental editor.
+- 🌟 I am notably detail-oriented and uniquely capable of understanding another person's vision. 
+- 🤝 To Grow with Mother Crow, please visit wwww.mothercrowpoetry.com
+- 🪝 Reading my poetry may result in emotional whiplash, but the prose that follows is always crisp, logical, and expertly crafted. 
 - ⚡ Fun fact: I am allergic to coffee and beer, and chocolate makes me gag. Most people can't wrap their heads around such an absurd palette.   
 
 <!---
